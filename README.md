@@ -1,1 +1,1 @@
-i'm new here. and i come to here with fuck me. 
+i'm new here. and i come to here with fuck you
